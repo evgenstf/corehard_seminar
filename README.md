@@ -1,0 +1,1 @@
+# corehard_seminar
